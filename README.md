@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **amrillafitroh@gmail.com**
 
-- ⚡ Fun fact **I really like learn something new**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
